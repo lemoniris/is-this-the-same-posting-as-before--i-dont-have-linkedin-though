@@ -5,3 +5,5 @@ https://www.linkedin.com/jobs/view/bioinformatics-analyst-at-weill-cornell-medic
 i figured it out and i applied to it!
 
 is this real will this actually work out
+
+i wonder when interviews are going to be for this, september prolly i guess
